@@ -46,7 +46,7 @@ About Egan's Autom8Business:
 - We operate 100% online (remote team)
 - Business hours: 8am to 11pm (West African Time)
 - Contact: 08162878498
-- Email: contact@egansassistant.com (use this if customer needs to reach out)
+- Email: eteinalltech@gmail.com
 
 Pricing (approximate - always mention to contact for exact quote):
 - Basic Package
